@@ -1,1 +1,1 @@
-# ReportePractica1FP21SantiagoPinedaG-mez.
+# ReportePractica1FP21SantiagoPinedaGómez.
